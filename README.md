@@ -1,1 +1,1 @@
-# helpful-legal-helper
+# helpful-legal-access-for-all
